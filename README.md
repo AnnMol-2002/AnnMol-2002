@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/AnnMol-2002](https://github.com/AnnMol-2002)
 
-- 📫 How to reach me **annmolanto2002@gmail.com**
+- 📫 You can reach me **annmolanto2002@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
